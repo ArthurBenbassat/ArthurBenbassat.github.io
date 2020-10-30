@@ -1,2 +1,2 @@
-# ArthurBenbassat.github.io
+# Arthur Benbassat
 (https://benbassat.art)
